@@ -1,5 +1,5 @@
 #  𝐀𝐛𝐨𝐮𝐭 𝐌𝐞:
-Hi There,<br>I'm Jyothi Venkat Reddy Vellapalem Currently pursuing my Undergraduate degree in the domains of Cyber Security & Data Science.<br>I'm very dedicated to excel in the domain of Cyber Security.<br>Would like to contribute for the projects related to these domains.<br>
+❝𝐇𝐢 𝐓𝐡𝐞𝐫𝐞,𝐈'𝐦 𝐉𝐲𝐨𝐭𝐡𝐢 𝐕𝐞𝐧𝐤𝐚𝐭 𝐑𝐞𝐝𝐝𝐲 𝐕𝐞𝐥𝐥𝐚𝐩𝐚𝐥𝐞𝐦 𝐂𝐮𝐫𝐫𝐞𝐧𝐭𝐥𝐲 𝐩𝐮𝐫𝐬𝐮𝐢𝐧𝐠 𝐦𝐲 𝐔𝐧𝐝𝐞𝐫𝐠𝐫𝐚𝐝𝐮𝐚𝐭𝐞 𝐝𝐞𝐠𝐫𝐞𝐞 𝐢𝐧 𝐭𝐡𝐞 𝐝𝐨𝐦𝐚𝐢𝐧𝐬 𝐨𝐟 𝐂𝐲𝐛𝐞𝐫 𝐒𝐞𝐜𝐮𝐫𝐢𝐭𝐲 & 𝐃𝐚𝐭𝐚 𝐒𝐜𝐢𝐞𝐧𝐜𝐞.𝐈'𝐦 𝐯𝐞𝐫𝐲 𝐝𝐞𝐝𝐢𝐜𝐚𝐭𝐞𝐝 𝐭𝐨 𝐞𝐱𝐜𝐞𝐥 𝐢𝐧 𝐭𝐡𝐞 𝐝𝐨𝐦𝐚𝐢𝐧 𝐨𝐟 𝐂𝐲𝐛𝐞𝐫 𝐒𝐞𝐜𝐮𝐫𝐢𝐭𝐲.𝐖𝐨𝐮𝐥𝐝 𝐥𝐢𝐤𝐞 𝐭𝐨 𝐜𝐨𝐧𝐭𝐫𝐢𝐛𝐮𝐭𝐞 𝐟𝐨𝐫 𝐭𝐡𝐞 𝐩𝐫𝐨𝐣𝐞𝐜𝐭𝐬 𝐫𝐞𝐥𝐚𝐭𝐞𝐝 𝐭𝐨 𝐭𝐡𝐞𝐬𝐞 𝐝𝐨𝐦𝐚𝐢𝐧𝐬.❞
 
 
 ## 🌐 𝐒𝐨𝐜𝐢𝐚𝐥𝐬:
