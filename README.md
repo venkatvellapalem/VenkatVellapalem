@@ -13,7 +13,7 @@
 
 ### 😂 𝐑𝐚𝐧𝐝𝐨𝐦 𝐃𝐞𝐯 𝐌𝐞𝐦𝐞
 <img src='https://memer-new.vercel.app/' style="height: 400px;"/>
----
+
 [![Profile Views](https://visitcount.itsvg.in/api?id=venkatvellapalem&icon=0&color=0)](https://visitcount.itsvg.in)
 
 
